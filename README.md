@@ -6,4 +6,4 @@
 > is not letting them rightfully learn,
 > And becuase if you are DONE with everything in class you should have the right to play games
 
-Curently We Are Developing our first web hack so folow and stay up to date!!
+Curently We Are Developing our first web hack so follow and stay up to date!!
